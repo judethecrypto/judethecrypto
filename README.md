@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to make a ring light work
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me no thanks
-- 😄 Pronouns: ???
+- 😄 Pronouns: he him 
 - ⚡ Fun fact: I like lego
 
 <!---
